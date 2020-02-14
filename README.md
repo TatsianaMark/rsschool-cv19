@@ -1,1 +1,1 @@
-https://github.com/TatsianaMark/rsschool-cv/cv
+https://github.com/TatsianaMark/rsschool-cv/blob/gh-pages/cv.md
