@@ -18,7 +18,7 @@ Graduated course of 2019 Front-end Developer CODING SCHOOL TEACHMESKILLS.
 2015-2017 Belarusian State Technological University , faculty of Forestry, study program –Tourism and Nature Management / Game Management.
 2017-2018   Kaunas Forestry and Environmental Engineering University of Applied Sciences, faculty of Forestry and Landscape Management, study program –Recreation, Professional Bachelor of Agriculture Degree.
 
-_According to training.by my English level is A2(Pre-Intermediate)and I keep learn English to this day._
+According to training.by my English level is A2(Pre-Intermediate)and I keep learn English to this day.
 
 
 
